@@ -1,6 +1,6 @@
 > 
 
-Hey，我是Lmyxxn，多出没于[博客](https://Lmyxxn.github.io)、[微博](https://weibo.com/u/1794237984)、[Github](http://github.com/Lmyxxn)等地带。
+Hey，我是Lmyxxn，多出没于[博客](https://Lmyxxn.github.io)、[微博](https://m.weibo.cn/profile/1794237984)、[Github](http://github.com/Lmyxxn)等地带。
 
 真正的技术小白 但有一颗爱学习的心呐💗
 
